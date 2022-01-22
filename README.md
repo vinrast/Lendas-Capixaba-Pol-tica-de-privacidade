@@ -1,0 +1,1 @@
+# Lendas-Capixaba-Pol-tica-de-privacidade
